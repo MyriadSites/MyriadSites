@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MyriadSites
+- 👀 I’m interested in world domination.
+- 🌱 I’m currently learning world dominating skills.
+- 💞️ I’m looking to collaborate on dominating the world.
+- 📫 How to reach me? Telepathically.
+- 😄 Pronouns: who's asking?
+- ⚡ Fun fact: not necessarily.
