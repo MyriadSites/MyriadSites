@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MyriadSites
+- 👋 Hi, I’m Myriad
 - 👀 I’m interested in world domination.
 - 🌱 I’m currently learning world dominating skills.
 - 💞️ I’m looking to collaborate on dominating the world.
